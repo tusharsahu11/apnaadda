@@ -1,3 +1,3 @@
 # apnaadda
 <br>
-author-Tushar Sahu
+author-Tushar is great
